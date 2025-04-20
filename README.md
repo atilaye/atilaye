@@ -7,4 +7,6 @@ www.ameyatilaye.net
 
 Please feel free to connect with me for coffee chats or just to say hi!
 
-📧 Email: atilaye@g.ucla.edu 💼 LinkedIn: https://www.linkedin.com/ameya-tilaye/
+📧 Email: atilaye@g.ucla.edu 
+
+💼 LinkedIn: https://www.linkedin.com/ameya-tilaye/
